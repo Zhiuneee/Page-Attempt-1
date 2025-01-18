@@ -1,1 +1,1 @@
-# zhiuneeenkrateia.github.io/page-attempt-1
+# zhiuneeenkrateia.github.io
